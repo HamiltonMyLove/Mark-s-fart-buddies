@@ -1,4 +1,4 @@
-#Pls this is my stan😭
+That's what the mask is, sam...
 
 ![Image alt](https://github.com/AlterEgoWithSpice/Mark-s-fart-buddies/blob/66235e80ccdbfdadf08af7665b9f82fab39210f8/Screenshot_20260711-201624.png)
 
